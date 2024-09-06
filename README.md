@@ -1,4 +1,4 @@
-## Animes Populares: Sua Busca, Sua Diversão!
+## Animes Populares: Uma busca por outro universo!
 
 **O que é esse projeto?**
 
